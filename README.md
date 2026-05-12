@@ -5,7 +5,6 @@
 📫 **How to Reach Me:**
 - Email: [maheshnprajapati@gmail.com](mailto:mahesh.dvloper@gmail.com)
 - LinkedIn: [linkedin.com/in/maheshnprajapati](https://linkedin.com/in/maheshnprajapati)
-- Skype: [live:mnp21_1](https://join.skype.com/invite/uHLGzPMxeXT3)
 - Location: Ahmedabad, India
 
 ---
